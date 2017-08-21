@@ -6,5 +6,3 @@
    2ª modificação feita nessa linha
 
 
-   que voz de boiola esse instrutor tem :P
-çloiuytred
